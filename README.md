@@ -126,29 +126,8 @@ Leafoberryy Japan Ritual Face Scrub combines fermented rice extract, aloe vera, 
 
 Explore the **[Face Scrub for Oily Skin Collection](https://leafoberryyskincare.com/collections/face-scrub-for-oily-skin)** and find a suitable addition to your skincare routine.
 
----
 
-## SEO Keywords
 
-**Primary Keyword:**
-- Face scrub for oily skin
-
-**Secondary Keywords:**
-- Best face scrub for oily skin
-- Face scrub for oily acne-prone skin
-- Gentle face exfoliator
-- Face scrub for excess oil
-- Face scrub for smooth skin
-
-## AEO and GEO Optimization
-
-- Question-based headings for answer engine optimization.
-- Direct answers to common skincare questions.
-- FAQ content targeting conversational searches.
-- Brand and product entity mentions.
-- Ingredient-based topical relevance.
-- Contextual collection and product backlinks.
-- Clear, factual information for AI search engines.
 
 ## Backlinks
 
